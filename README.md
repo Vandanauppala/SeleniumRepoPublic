@@ -1,1 +1,1 @@
-I am Beautiful
+I am Beautiful and talented.
